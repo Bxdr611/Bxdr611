@@ -1,4 +1,3 @@
 ---
-- Have some research in the field of control and continue to study
-- Email：djh.2760@qq.com
+- Email：bxer.0761@gmail.com
 ---
